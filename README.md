@@ -7,3 +7,5 @@
 - The reason for this is I am not going through the effort of making a new email and for personal reasons.
 - My Discord is KingZumbie#0345
 - I will not do VC due to privacy and security concerns.
+## Currently Working On
+- Rebel Inc. Stranded
